@@ -1,3 +1,5 @@
+file:///C:/Users/RuS/Downloads/%E3%85%8E%20on%20Twitter.jpg
+# About Myself
 - Hi! I'm Yumna👋
 - I’m currently learning geophysics🌍.
 - Interest : drawing, listening songs
